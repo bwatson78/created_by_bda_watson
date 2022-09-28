@@ -1,0 +1,10 @@
+# main links
+main:
+  - title: "About"
+    url: /about
+  - title: "Brad's Portfolio"
+    url: /portfolio
+  # - title: "Sample Collections"
+  #   url: /collection-archive/
+  # - title: "Sitemap"
+  #   url: /sitemap/
