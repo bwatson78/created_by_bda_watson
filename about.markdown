@@ -10,4 +10,4 @@ But enough about work--I travel with my wife anywhere I can to try all the news:
 
 I originally hail from South Jersey, just forty-five minutes from Philadelphia, and have fond memories catching the odd Flyers and Phillies games. I still root for all things Philly, including cheesesteaks, soft pretzels, and weird, insane sports mascots. Even though my ties to my birthplace are strong, my home's in Orlando, hopefully, for good.
 
-Finally, I'm a big fan of most things live. Sporting events, concerts, theater productions, and comedy. In most cases, I'm dragging my wife for something she has no interest in, like A Perfect Circle or Primus concert. Or a Flyers/Lightning game. But sometimes I get lucky and she likes Book of Mormon and Hamilton. The set Patton Oswalt performed worked for her, too.
+Finally, I'm a big fan of most things live. Sporting events, concerts, theater productions, and comedy. In most cases, I'm dragging my wife to something she has no interest in, like A Perfect Circle or Primus concert. Or a Flyers/Lightning game. But sometimes I get lucky and she likes Book of Mormon and Hamilton. The set Patton Oswalt performed worked for her, too.
